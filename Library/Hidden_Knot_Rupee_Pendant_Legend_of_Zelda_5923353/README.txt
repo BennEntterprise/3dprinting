@@ -1,0 +1,1 @@
+Hidden Knot Rupee Pendant Legend of Zelda by AlexandersWorkshop on Thingiverse: https://www.thingiverse.com/thing:5923353
