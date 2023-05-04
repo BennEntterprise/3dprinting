@@ -1,0 +1,2 @@
+# Ignore Mac System file that helps present the finder windown in a certain way.
+.DS_Store
